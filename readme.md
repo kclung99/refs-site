@@ -1,0 +1,1 @@
+apple needs a site for app support and privacy policy, here's the site.
